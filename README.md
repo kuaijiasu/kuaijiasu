@@ -1,16 +1,34 @@
-### Hi there 👋
 
-<!--
-**kuaijiasu/kuaijiasu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+快加速VPN - 永远能连上的 VPN！
 
-Here are some ideas to get you started:
+👍 稳定运行已经超1900天！
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🔐 无需任何信息即可注册！
+
+🛠 无需配置,3秒内连接！
+
+😎 已经助力2000W+用户翻墙！
+
+⚠ 请复制链接后在浏览器中打开下载,不要在微信中打开！
+
+http://www.kuaijiasu.xyz/#/ 
+
+ 
+
+⚠ 如果是浏览器打开的此页面请直接点击下载！
+
+⏬iOS 内测版本（中国区 ID）
+
+⏬Android 版本.APK
+
+⏬Windows 版本.exe
+
+⏬ macOS 版本.dmg
+
+⏬官方网站链接
+
+免费福利：
+
+💝 下载快加速VPN，免费领翻墙会员！
+
+💝 成为代理分销，还能额外领取高额可提现佣金！
