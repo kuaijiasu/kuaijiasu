@@ -17,15 +17,15 @@ http://www.kuaijiasu.xyz/#/
 
 ⚠ 如果是浏览器打开的此页面请直接点击下载！
 
-⏬iOS 内测版本（中国区 ID）
+⏬iOS 内测版本（中国区 ID） https://topwap66.com/app/1556590327
 
-⏬Android 版本.APK
+⏬Android 版本.APK https://xuanhuitang.com/download/kjs/kjs_ad.apk
 
-⏬Windows 版本.exe
+⏬Windows 版本.exe https://xuanhuitang.com/download/kjs/kjs_pc.exe
 
-⏬ macOS 版本.dmg
+⏬ macOS 版本.dmg https://xuanhuitang.com/download/kjs/kjs_mac.dmg
 
-⏬官方网站链接
+⏬官方网站链接 https://www.kuaijiasu.xyz/#/download
 
 免费福利：
 
